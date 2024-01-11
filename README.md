@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Wishfish24
+- 👀 I’m interested in astrophysics
+- 🌱 I’m currently studying mechanical engineering and astrophysics 
+- 📫 contact on discord : wishfish23
